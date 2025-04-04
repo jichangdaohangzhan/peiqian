@@ -10,8 +10,8 @@
 
 **访问官网**：点击下方链接进入
 
-[ **赔钱机场官方地址入口1**](https://xn--mes358aby2apfg.com/#/register?code=ZmxIAPtC)
-[ **赔钱机场官方地址入口2**](https://xn--cp3a08l.com/#/register?code=ZmxIAPtC)
+- [ **赔钱机场官方地址入口1**](https://xn--mes358aby2apfg.com/#/register?code=ZmxIAPtC)
+- [ **赔钱机场官方地址入口2**](https://xn--cp3a08l.com/#/register?code=ZmxIAPtC)
 
 
 **点击注册**：在主页右上角找到并点击“注册”按钮。
